@@ -1,4 +1,11 @@
-### Hi there 👋
+## Hi there, I'm a young German Student 👋
+Currently not much here but Im sure it won't take long.
+
+
+
+
+
+
 
 <!--
 **Hxhnchxn/Hxhnchxn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
