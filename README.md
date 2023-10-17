@@ -1,5 +1,5 @@
 ## Hi there, I'm a young German Student 👋
-Currently not much here but Im sure it won't take long.
+Currently not much here but I'm sure it won't take long.
 
 
 
